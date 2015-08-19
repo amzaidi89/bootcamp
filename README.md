@@ -1,1 +1,1 @@
-Author - Abbas Zaidi (a.m.zaidi89@gmail.com)
+Author - Abbas Zaidi (abbas.zaidi@duke.edu)
